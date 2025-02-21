@@ -23,9 +23,9 @@
 🔧 Server Management & Optimization  
 
 ## 📫 Let's Connect  
-📌 Discord: `yourDiscordUsername`  
+📌 Discord: `https://discord.gg/AtKcVJc5xZ`  
 📌 GitHub: [@SerPablo0](https://github.com/SerPablo0)  
-📌 Twitter: [Your Twitter (if applicable)]  
+📌 Insta: [xe_mo]  
 
 ---
 
